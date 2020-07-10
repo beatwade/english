@@ -43,8 +43,34 @@ man is my neiborhood noise
 
 is a wake up call hotel
 
-if they are in a hotel , 
+if they are in a hotel ,
 
 at the end of story, I'm not a end up , you could be a lazy writer. I'm not a early writer, I don't jump out of bed
 
 instead I get up very slowly
+
+---
+
+each lesson has three part
+
+first slowly
+
+I really love the weekend
+
+our story began wake up , now you are awake. I say wake up is what I can handle. another expression is , I see that getting up , the covers are the things , blanket, comfort, flatsheet, is a very blanket, is something heavy light blanket, it's might not , usually put over you, the sheet goes fitted sheet, you sleep on blanket, I say in the story, I have different colors pillow cases, from two pillow, pillow cases
+
+we use the verb to match I sometimes , I sometimes , i'ke to keep alarm a little volume, jarring , we mean it's loud, it's somthing not very nice sound, to have a , my old roomate, use to like a terrible, bad sounding buzzer
+
+don't play music, this buzzer always drive them crazy. as I was saying, we are talking one thing.then you are changing , as I was saying. usually because. some sound , someone is making some noise.
+
+close the door. slam the door. my mother is usually call . I was a boy, I sometimes slam the door.
+
+another noise is gunfire. make some noise. my neiberhood
+
+neighbourhood 
+
+at the end of the story. and who wake up , get up . you could be a early raiser
+
+don't jump out of bed, ready to take. I'll over sleep
+
+the worst part of me is 
