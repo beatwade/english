@@ -35,7 +35,7 @@ a pillow is what you put your head on when you sleep
 alarm goes off
 
 as I was saying. I sometimes make some noise. we mean someone is making
-the verb is meaning cardoor
+the verb is meaning car door slame
 
 I was sometimes slam the door
 
@@ -74,3 +74,9 @@ at the end of the story. and who wake up , get up . you could be a early raiser
 don't jump out of bed, ready to take. I'll over sleep
 
 the worst part of me is 
+
+any way, I turn on the light, help to clean your teeth , you poll a small amount bottle. mouth wash.
+I swish , covers and cleans all of your teeth. spit remove that from your mouth
+
+floss is piece of string, when I have done floss. I pull out or take out the tooth brush
+squeeze 
